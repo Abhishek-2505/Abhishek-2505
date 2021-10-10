@@ -1,2 +1,2 @@
-## Hi Everyone! Welcome to My GitHub Profile
+## Hi! Welcome to My GitHub Profile
 
